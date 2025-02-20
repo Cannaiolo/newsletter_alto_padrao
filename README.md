@@ -1,0 +1,1 @@
+# newsletter_alto_padrao
